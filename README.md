@@ -28,3 +28,31 @@ Set up the service locally and access it using a browser
 
 
 C:\Users\QingLuan\Documents\My Web Sites\WebSite1\djf
+
+
+
+
+
+6、some cases
+
+https://groupsbeta.atlastravelweb.com/hhhh
+
+![image](https://user-images.githubusercontent.com/85432534/202338416-c2d2b67e-32ce-4382-bc0e-84a292872c97.png)
+
+
+![image](https://user-images.githubusercontent.com/85432534/202338520-0a8604bb-3f42-4747-a845-52b7f914314c.png)
+
+
+
+
+http://www.onewestgift.com/jjjjj
+
+
+![image](https://user-images.githubusercontent.com/85432534/202341584-72718256-1903-44f8-b28b-94c5df384f9e.png)
+
+
+![image](https://user-images.githubusercontent.com/85432534/202341659-a1e745a7-45bd-4d3e-8b7a-77df17cf733d.png)
+
+
+
+https://mti-100.com/kkk
